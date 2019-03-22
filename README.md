@@ -1,1 +1,1 @@
-# mywork.github.io
+# bright.github.io
